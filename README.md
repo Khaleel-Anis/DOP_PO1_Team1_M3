@@ -32,3 +32,6 @@ A number that hums like evening dew.
 
 Hello, this is Ye Yint Aung aka YYA.
 
+yay now i don't need to use cmd and notepad
+
+
