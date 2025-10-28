@@ -24,7 +24,11 @@ It lingers — a whisper of destiny.
 
 Neither round nor even, just rare and true,
 
-A number that hums like evening dew. 
+A number that hums like evening dew.
 
 -Justin
+
+
+
+Hello, this is Ye Yint Aung aka YYA.
 
